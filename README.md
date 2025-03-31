@@ -1,1 +1,1 @@
-# CelesteIT
+# Celeste IT
